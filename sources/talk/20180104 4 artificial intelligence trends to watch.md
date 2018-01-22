@@ -1,3 +1,4 @@
+Translating by dududusty
 4 artificial intelligence trends to watch
 ======
 
